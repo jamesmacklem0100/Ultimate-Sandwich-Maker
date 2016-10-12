@@ -7,3 +7,12 @@
 
 
 
+Wheat Bread
+Ham
+Turkey
+Swiss
+Lettuce
+Tomato
+Salt
+Onions
+Light light light mayo
